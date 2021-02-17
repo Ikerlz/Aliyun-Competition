@@ -22,4 +22,4 @@
 
 ## 4、成绩：第一名
 
-
+![image](https://github.com/Ikerlz/Aliyun-Competition/blob/master/%E8%AF%81%E4%B9%A6.jpg)
